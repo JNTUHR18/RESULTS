@@ -1,1 +1,1 @@
-# shravanjakkula.github.io
+# jntuhr18.github.io/results
